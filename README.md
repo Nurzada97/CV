@@ -1,1 +1,1 @@
- https://Nurzada97.github.io/cv/cv
+ https://Nurzada97.github.io/CV/cv
